@@ -2,7 +2,7 @@
 ![Без названия](https://github.com/user-attachments/assets/466bc64e-6e6f-4024-a90b-00e0c2bdaacf)
 
 
-‿”  hewwoo im so happe grr
+‿”  hewwoo im so kind btw
 
 IM ALWAYS HAPPY TO MAKE NEW FRIENDS but aah my bag eng  : (
 
