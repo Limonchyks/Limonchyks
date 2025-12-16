@@ -19,4 +19,4 @@ c*h free , int , dont need 2 ask and srry if afk w2i
 ‿” DNI: base and former friends
 
 
-![Без названия (1)](https://github.com/user-attachments/assets/e2e94217-a06a-46c3-9f08-aacd10c6705a)
+![Без названия (1)](https://github.com/user-attachments/assets/e2e94217-a06a-46c3-9f08-aacd10c6705a).
